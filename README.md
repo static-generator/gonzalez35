@@ -5,7 +5,7 @@
 ![efaa85262c2979c0bce49d0dc643d49e](https://github.com/user-attachments/assets/5e1c700a-d7f0-442d-9aeb-cbc0e4021dd6)
 
 ### **Description**
-Good Day Everyone! I'm Jendel Pia B. Resoco from 9 - Gonzalez, in this website, you're able to learn things about me!
+*Good Day Everyone! I'm Jendel Pia B. Resoco from 9 - Gonzalez, in this website, you're able to learn things about me! Firstly, you may call me either Jia or Pia. I've graduated elementary with honors from La Consolacion College of Iriga city. I'm the kind of person who most likely wants to discover new stuff, for example; discovering new hobbies or even finding new goals in life. I am looking forward in creating new friends. :)*
 
 
 ### My Hobbies
@@ -41,6 +41,15 @@ Good Day Everyone! I'm Jendel Pia B. Resoco from 9 - Gonzalez, in this website, 
 
 ### **Favorite Streamer**
 - Caseoh
+
+![1cfb0a4c581566c01655fb99c59bd345](https://github.com/user-attachments/assets/d69469be-97f3-47a6-9211-7563b4dd4500)
+
+
+### **Top 1 Anime**
+- One Piece
+
+### **More things that I do**
+- 
 
 *Tiktok Account:* https://www.tiktok.com/@yipee0_o
 
