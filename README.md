@@ -27,9 +27,20 @@ Good Day Everyone! I'm Jendel Pia B. Resoco from 9 - Gonzalez, in this website, 
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/5Vk7XxqkuxH1cH4YGPhGkV?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 ### Genre of Music that I also like:
-1. Metal
-2. Indie
-3. J-Pop
+- Metal
+- Indie
+- J-Pop
+
+### My Clubs Throughout these School Years:
+- The Mix - Up Club
+- Pet Society
+- Scouting
+
+### Top 3 Games:
+- Codm
+- Minecraft
+- Roblox
+
 
 *Tiktok Account:* https://www.tiktok.com/@yipee0_o
 
