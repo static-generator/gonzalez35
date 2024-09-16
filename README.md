@@ -49,7 +49,11 @@
 - One Piece
 
 ### **More things that I do**
-- 
+- Cosplaying
+- Drawing
+- Writing Short Stories
+- Rollerskating
+  
 
 *Tiktok Account:* https://www.tiktok.com/@yipee0_o
 
