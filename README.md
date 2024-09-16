@@ -41,6 +41,8 @@ Good Day Everyone! I'm Jendel Pia B. Resoco from 9 - Gonzalez, in this website, 
 - Minecraft
 - Roblox
 
+### **Favorite Streamer**
+- Caseoh
 
 *Tiktok Account:* https://www.tiktok.com/@yipee0_o
 
