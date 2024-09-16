@@ -19,12 +19,6 @@ Good Day Everyone! I'm Jendel Pia B. Resoco from 9 - Gonzalez, in this website, 
 - Mangas/Manhwas
 - Siya
 
-#### My Favorite Quote
-![speed2_2024_09_12_15_55_18](https://github.com/user-attachments/assets/a02b8b9b-3e9d-4be8-bd57-7150c36f0b00)
-
-
-
-<iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/5Vk7XxqkuxH1cH4YGPhGkV?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 ### Genre of Music that I also like:
 - Metal
